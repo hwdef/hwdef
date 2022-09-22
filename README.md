@@ -16,4 +16,3 @@ Here are some ideas to get you started:
 -->
 
 而世之奇伟，瑰怪，非常之观，常在于险远。
-东北平原，是没有波浪的海。
